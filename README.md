@@ -1,2 +1,2 @@
 # first_repository
-DMM lead Minh
+Trường đẹp trai
